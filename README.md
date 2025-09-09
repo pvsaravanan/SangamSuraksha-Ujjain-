@@ -1,1 +1,1 @@
-# SangamSuraksha-Ujjain-
+# SangamSuraksha-Ujjain
